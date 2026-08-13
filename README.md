@@ -12,4 +12,5 @@ New here, mostly lurking in repos for now....<br/>
 | 🥉 | [Tillamook Sugar Cookie](https://www.onsecondscoop.com/2023/10/tillamook-holiday-sugar-cookie-ice-cream.html) | Best in an affogato. Limited edition. |
 
 ### *Meme of the Week*
-<img width="500" height="500" alt="meme_08072026" src="https://github.com/user-attachments/assets/068a0942-551f-4018-a4cf-4a0e3f0aece9" />
+<img width="500" height="500" alt="meme_08072026" src="https://github.com/user-attachments/assets/a01ede77-00c6-43d9-8cad-ae70f9de4115" />
+
